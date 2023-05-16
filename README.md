@@ -1,6 +1,4 @@
-### Hallo Leute!
-
-Me chamo Cleberson e sou graduando em Oceanologia pela Universidade Federal do Sul da Bahia - UFSB 🐬
+Graduando em Oceanologia pela Universidade Federal do Sul da Bahia - UFSB 🐬
 
 
 
